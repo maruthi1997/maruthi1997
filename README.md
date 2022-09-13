@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @maruthi1997
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+maruthi1997/maruthi1997 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->thank you
+- its a great pleasure to meet u in this platfrom to extand our skills
+- i would like to extand my knowledeg in this platform 
+- 
